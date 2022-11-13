@@ -1,5 +1,5 @@
 # 💫 About Me:
-🤘 hi, this is Rachit a.k.a roboroaster<br><br>🔭 just a student exploring things<br><br>📊 currently working on creating and analysing gas emissions dataset<br><br>💜 like data analysis, machine learning and web development<br><br>🎮️  grind ranks with me on Apex Legends Mobile (id: roboroaster)<br><br><br>
+🤘 hi, this is Rachit a.k.a roboroaster<br><br>🔭 just a student exploring things<br><br>📊 currently working on creating and analysing gas emissions dataset<br><br>💜 like data analysis, machine learning and web development<br><br><br><br><br>
 
 
 ## 🌐 Socials:
